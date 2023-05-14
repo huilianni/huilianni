@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @huilianni
-- 👀 I’m interested in ... aprender, executar e compartilhar
+- 👀 I’m interested in ... aprender, executar e compartilhar tudo para facilitar o rabalho do próximo, utilizando metodologias ágeis.
 - 💞️ I’m looking to collaborate on ... na criação de novos programas, sistemas e ferramentas que otimizem o trabalho de outras pessoas, facilitando e otimizando o tempo nas etapas para executar uma tarefa.
 - 📫 How to reach me ... pode chegar por meio do e-mail profissional: gestora.negocial@gmail.com
 
